@@ -1,5 +1,0 @@
-# Gurecamole 
-
-## Jngredients
-
-# Steps
